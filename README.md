@@ -1,2 +1,5 @@
-# Tux-Proxy
-this is my proxy for school
+## THIS MY PROXY FOR SCHOOL AND STUFF🥳
+## 🥳
+## HOW TO USE : FIRST TYPE IN (HTTPS::/YOUTUBE.COM) - THEN CLICK ON ( TIKTOK GAMES OR SOME SHI🥳)
+## 🥳🥳🥳🥳🥳🥳🥳🥳🥳🥳🥳🥳🥳
+## 🥳MORE COMING SOON🥳
